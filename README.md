@@ -10,3 +10,4 @@ About Redluna Token
 ✔️ RedLuna token has launched on May 24, 2022.
 ✔️ Redluna team aims to develop Metaverse Learning Platform for Online Learning
 ✔️ Official Web: https://redlunatoken.com
+Download Redluna game from Google Play Store !
